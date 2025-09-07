@@ -2,3 +2,7 @@
   
    
      ╰┈➤   𝓱𝓮/𝓽𝓱𝓮𝔂 ꩜ 𝓷𝓲𝓷𝓮𝓽𝓮𝓮𝓷 𝔂𝓸 ּ ֶָ֢.
+
+
+     ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+    ! [Bakugo]https://media.tenor.com/vbKjQ0kOYwEAAAAC/bakugo-boku-no-hero-academia.gif
